@@ -1,3 +1,3 @@
 # Vs Brainy Team
 
-we make vs brainy lol
+We make Vs Brainy and SKiD03, and some other things related to that project.
